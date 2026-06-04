@@ -7,7 +7,7 @@ Access the lab script below:
 
 ## Got feeback?
 
-Find me on LinkedIn: https://linkedin.com/andysmith-uk
+Find me on LinkedIn: https://www.linkedin.com/in/andysmith-uk/
 
 ## Links and resources referenced in the class:
 
